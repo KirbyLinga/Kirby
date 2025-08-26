@@ -1,4 +1,4 @@
-# Kirby
+
 
 〰️ About Me
 - 👨 Kirby L. Linga
